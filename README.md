@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Anabizu
-- Não sei o que falar.
+- 👋 Oii, sou @Anabizu
+- Não sei o que falar
 - Instagram para contato: amiveri01
 
 <!---
